@@ -1,4 +1,4 @@
-# 
+# Premium GIMP extensões para Mac OS | Atualizado GIMP extensões para PC Windows. Com objetos inteligentes e ferramentas tipográficas — otimizado para máximo desempenho em cada plataforma.
 
 
 
